@@ -1,0 +1,2 @@
+# NewMing
+PingDiQi!
